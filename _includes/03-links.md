@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[grade a under a youtube channel](https://www.youtube.com/user/GradeAUnderA)
